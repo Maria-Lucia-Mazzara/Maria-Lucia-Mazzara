@@ -17,4 +17,5 @@ Mi appassiona combinare logica, estetica e comprensione del comportamento per cr
 - Esplorando l'intersezione tra psicologia e tecnologia, forte dei miei studi clinici e dell'analisi di modelli comportamentali (come la teoria LMX).
 
 ### ⚡ Nel tempo libero...
-Quando non programmo, mi alleno al box di CrossFit, mi interesso di cinema horror o mi dedico alla grafica e al design.
+Quando non programmo, mi alleno faccio CrossFit, mi piace guardare film e leggere per tenere sempre la mente allenata
+o mi dedico alla grafica e al design.
